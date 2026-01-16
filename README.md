@@ -1,1 +1,3 @@
-# .github
+# *Stop Collecting: You Can’t Keep It — So Stop Living Like You Can*
+## *Discover why you can’t keep anything—and how releasing the need to collect brings true peace, joy, and spiritual freedom. Share this story if you’re choosing freedom over collection.* [More details…](https://spiritualkhazaana.com/web-stories/stop-collecting-you-cant-keep-it/)
+## #LetGo #LiveFully #SpiritualFreedom #stopcollecting #spiritualminimalism #nonattachment #impermanence #liveinthepresent #emotionalclutter #releasefear #abundancemindset #legacyoverpossessions #mindfulliving #stopcollectingpossessions #impermanenceoflife #spiritualminimalism #whyattachmentcausessuffering
